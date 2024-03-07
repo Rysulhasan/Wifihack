@@ -1,1 +1,1 @@
-Only for personal use by Th3Ry5u1
+Only for privet use by Th3Ry5u1
